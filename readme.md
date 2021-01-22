@@ -1,1 +1,1 @@
-# [dmca.party](http://dmca.party)
+archived at https://ungoldman.github.io/dmca.party
